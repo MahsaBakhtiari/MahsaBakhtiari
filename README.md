@@ -9,7 +9,6 @@
 📫 You can reach me at: mahsabakhtiarim@gmail.com
 
 **Why do mathematicians love parks?**
-
 *Because every problem has a natural solution!* 🌳🧮😄
 
 
